@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a Spring Shell project<br>I'm currently looking to collaborate on any project I can contribute to<br>to<br>I'm currently looking for help with some bugs!<br>I'm currently learning some AI related topics<br>Ask me about whatever you want. I may not have the answer though!<br>Fun fact 🤔 I'm in love with the sky! and cats 🐱
+I'm currently working on a Spring Shell project<br>I'm currently looking to collaborate on any project I can contribute to<br>I'm currently looking for help with some bugs!<br>I'm currently learning some AI related topics<br>Ask me about whatever you want. I may not have the answer though!<br>Fun fact 🤔 I'm in love with the sky! and cats 🐱
 
 
 ## 🌐 Socials:
